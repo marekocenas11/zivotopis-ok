@@ -1,0 +1,2 @@
+# zivotopis-ok
+Moje 
